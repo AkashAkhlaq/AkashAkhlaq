@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AkashAkhlaq
-- 👀 I’m interested in prohraming
+- 👀 I’m interested in programing
 - 🌱 I’m currently learning bs computer science 
 - 💞️ I’m looking to collaborate on everwhere
 - 📫 How to reach me ....through my mail akashakhlaq38@gmail.com
